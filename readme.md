@@ -20,3 +20,7 @@ Essas foram as minhas maravilhosas férias de verão.
 
 Fim!
 
+
+
+PS: BLA BLA BLA A LAIS É CHATINHA E O RODRIGO É CHATAOO
+
